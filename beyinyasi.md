@@ -1,4 +1,3 @@
-Put your HTML text here
 Beyin Yaşı – Gizlilik Politikası
 Son güncelleme: 19 Şubat 2025
 
